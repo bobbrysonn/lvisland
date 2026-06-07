@@ -1,0 +1,2 @@
+## S08
+1. https://bandana:freelancer.com@bandana.apex.usbx.me/downloads/qbittorrent/Series/Love.Island.USA.S08E01.1080p.AMZN.WEB-DL.DDP2.0.H.264-FLUX.mkv
